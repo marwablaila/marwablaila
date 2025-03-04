@@ -1,3 +1,5 @@
+![Hi](https://github.com/user-attachments/assets/83813139-87c3-4f50-8ed8-ac6c1a7d4d2a)
+
 ## 👋 Hi, I'm Marwa Blaila!<br />
 ### 🚀 Industrial Engineer | Specialized Supply Chain Optimization, Data Science & Automation<br />
 
